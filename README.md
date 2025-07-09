@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Ashenafi (Ashe Z)
+# 👋 Hi, I'm Ashenafi Zewdie
 
 🎓 Junior Full Stack Developer | Fresh Graduate  
 🚀 Passionate about building modern web and mobile apps
