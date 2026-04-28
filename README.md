@@ -58,7 +58,7 @@
 ---
 
 ## 📫 How to reach me:
-[LinkedIn](https://linkedin.com/in/ashenafi-ze/) | [Email](mailto:ashenafizewdie19@example.com)
+[LinkedIn](https://linkedin.com/in/ashenafi-ze/) | [Email](mailto:ashenafizewdie19@gmail.com)
 
 ---
 
